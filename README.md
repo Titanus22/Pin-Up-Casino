@@ -1,4 +1,4 @@
-# <a href="https://shorturl.at/wN1QB">Play Pin Up Casino for free and for money in Bangladesh</a>
+# <a href="https://shorturl.at/Z4VPU">Play Pin Up Casino for free and for money in Bangladesh</a>
 
 # Pin Up Casino: A Gem for Gamers in Bangladesh
 
